@@ -1,1 +1,0 @@
-Backdrops of the repositories
